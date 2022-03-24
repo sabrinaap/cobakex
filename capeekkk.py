@@ -1,0 +1,1 @@
+'aku capek bgt gais sama git sumpah'
